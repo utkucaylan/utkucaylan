@@ -1,1 +1,1 @@
-Interests: Artificial Intelligence | Machine Learning | Optimization | Reduced-Order Modelling 🤖🧠
+Interests: Machine Learning | Optimization | Reduced-Order Modelling 🤖🧠
